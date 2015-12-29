@@ -1,7 +1,7 @@
 # ABOUTUS
 ---------
 
-William Information Technology    is  a  powerful  Orgs  started  at   Dec 29 2015  by wilmix  jemin j.
+William Information Technology    is  a  powerful  Orgs  started  at  Oct 2013  by wilmix  jemin j.
 
 WilliamInformationTechnology  has  5 types  of  Sections.
 
